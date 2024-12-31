@@ -1,6 +1,6 @@
 
 <p align="center">
-c + h and int are always welcome
+c + h and int are always welcome.
 <br> (i'm off tab a lot, so w2i if you don't see me moving)
 </p>
 <hr>
