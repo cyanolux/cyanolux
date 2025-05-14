@@ -5,7 +5,7 @@ c + h and int are always welcome.
 </p>
 <hr>
 <p align="center">
-if i'm not responding well, it's not that i'm judging you, i'm just very bad at social interaction
+if i'm not responding well, it's not that i'm judging you, i'm just very bad at social interaction.
 </p>
 <hr>
 <p align="center">
