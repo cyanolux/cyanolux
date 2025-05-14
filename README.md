@@ -1,7 +1,7 @@
 
 <p align="center">
-c + h and int are always welcome.
-<br> (i'm off tab a lot, so w2i if you don't see me moving)
+c + h is always welcome.
+<br> i'm off tab a lot, so w2i if you don't see me moving.
 </p>
 <hr>
 <p align="center">
