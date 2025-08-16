@@ -1,6 +1,6 @@
 
 <p align="center">
-feel free to int about literally anything, though be warned that i have low social skill.
+feel free to int about anything, though be warned that i have low social skill.
 <br> i'm off tab a lot, so w2i if you don't see me moving.
 <br> .
 <br> if you have any concerns about something i did or said, please let me know, so i can consider them and improve.
