@@ -1,16 +1,14 @@
 
 <p align="center">
 <img src="https://files.catbox.moe/46m3fk.png" height=50%>
-
+<hr>
 <p align="center">
 BYI
 
 <p align="center">
-i have avoidant personality disorder and some other stuff, so i get socially anxious very easily, and i'm just generally bad at social interaction.
-<br> i don't mind if you interact, just be warned i don't make for a good conversation partner if i don't know you well, and you probably don't want to be friends with me if you don't want to deal with a mentally ill person.
+i have avoidant personality disorder and some other stuff, so i get socially anxious very easily, and i'm just generally bad at social interaction. though i try not to be, i'm probably still emotionally immature.
+<br> i don't mind if you interact, just be warned i don't make for a good conversation partner if i don't know you well, and you probably don't want to be friends with me if you don't want to deal with any of what's mentioned above.
 <hr>
-<p align="center">
-if you have any concerns about something i did or said, please let me know, so i can consider them and improve.
 
 <p align="center">
 ⋆｡°✩
