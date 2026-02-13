@@ -15,4 +15,4 @@ i have avoidant personality disorder and some other stuff, so i get socially anx
 
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/b1/b7/62/b1b7622ccf181bcd66e2a6cba3381dcf.jpg" height=100%>
+<img src="https://i.pinimg.com/1200x/1d/b2/b4/1db2b4564746a96e4ac62b12b92768eb.jpg" height=100%>
