@@ -6,8 +6,8 @@
 BYI
 
 <p align="center">
-i have avoidant personality disorder and some other stuff, so i get socially anxious very easily, and i'm just generally bad at social interaction. though i try not to be, i'm probably still emotionally immature.
-<br> i don't mind if you interact, just be warned i don't make for a good conversation partner if i don't know you well (or ever), and you probably don't want to be friends with me if you don't want to deal with any of what's mentioned above.
+i have avoidant personality disorder and some other stuff, so i get socially anxious very easily, and generally don't make for fun company.
+<br> however, i am not judgemental and i don't mind if you interact, just don't expect too much.
 <hr>
 
 <p align="center">
