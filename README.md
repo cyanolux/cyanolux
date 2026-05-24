@@ -7,7 +7,7 @@ BYI
 
 <p align="center">
 i have avoidant personality disorder and some other stuff, so i get socially anxious very easily, and generally don't make for fun company.
-<br> however, i am not judgemental and i don't mind if you interact, just don't expect too much.
+<br> however, i am not judgemental and i don't mind if you interact, just don't expect anything.
 <hr>
 
 <p align="center">
